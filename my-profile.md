@@ -11,7 +11,7 @@
 *圓神，起洞！*
 
 [這應該不會是瑞克搖吧...?](https://youtu.be/dQw4w9WgXcQ?feature=shared)
-![圖片的名字](images.jpg)
+![圖片的名字](NeNe.jpg)
 
 你喜歡的名言或你的人生哲學：
 ```人們常說：人們常說```
